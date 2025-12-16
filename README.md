@@ -1,1 +1,1 @@
-# DugimailFigma
+https://yufusawa.github.io/DugimailFigma/
